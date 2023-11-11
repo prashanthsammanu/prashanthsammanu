@@ -44,7 +44,7 @@ Enthusiastic and driven Computer Science graduate student at the University of N
 
 📍 Charlotte, NC-28262  
 📞 704-387-9105  
-📧 [psammanu@charlotte.edu](mailto:psammanu@charlotte.edu)  
+📧 [prashanthsammanu@gmail.com](mailto:prashanthsammanu@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/prashanthsammanu/) | [GitHub](https://github.com/prashanthsammanu) | [Portfolio](https://prashanthsammanu.com/)
 
 Looking forward to connecting and collaborating on innovative projects! Feel free to reach out!
